@@ -1,2 +1,2 @@
-hi i m jaanu megalathan
+hi i m jaanu..
 welcome to github!!
